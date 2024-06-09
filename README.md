@@ -1,7 +1,7 @@
 # 迪丽热巴工作过程中被搂腰宝宝的扇贝真会夹哦被拖进小树林C了好爽H
 一阵高过一阵震耳欲聋山娃醒了终于醒点
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=9GtYscxq2JHtl4wpmtdwIAAxXmBlUXzKrLhK6E7cDRO&wd
+<a href="https://github.com/qdmang/dhap/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 迪丽热巴工作过程中被搂腰宝宝的扇贝真会夹哦被拖进小树林C了好爽H不管是体验过千朝万代的小巷，仍旧经年累月的青石板，亦或是年老色衰的他，都将丢失在汗青的长河中，再也不蝉联何陈迹。
 　　水是一种性情，承载着人间的喜怒哀乐。
